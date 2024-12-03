@@ -39,4 +39,5 @@
 2. utilization 조건 추가
 3. stop_time -> 하나로 homogeneity
 4. 간격으로 바꾸자.
-5. 
+5. wow minjae happy christmas with pretty girl congrats!
+6. 나도 을지로갈래 을 지 로 부 럽 다 나는 혼자 술이나 마시러 가야지ㅠ 인생 왜 나만 외롭냐 합주 6명 다 연애하겠네 이제
